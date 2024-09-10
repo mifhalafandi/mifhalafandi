@@ -13,6 +13,8 @@ I'm **Mifhal Afandi**,Im a passionated learner about Cloud Computing, Sowngwriti
 - 🚑 Ask me about anything related to Cloud Computing.
 - ⚡ Fun fact: i like music and movies
 - 📫 How to reach me: Contact me at zdfwolx@gmail.com for personal use
--
--
--          🎆 **Thank You For Vitising My Page** 🎆
+                      LinkeiDN : https://id.linkedin.com/in/mifhal-afandi-a61582300 (Mifhal Afandi)
+                      Instagram: @mef3lz
+---
+
+           🎆Thank You For Vitising My Page🎆
