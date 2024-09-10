@@ -1,5 +1,5 @@
 Hi Fellas..
-I'm **Mifhal Afandi**, a passionate learner, creator, and coder! Welcome to my little corner of the internet.
+I'm **Mifhal Afandi**,Im a passionated learner about Cloud Computing, Sowngwriting, Composing.
 
 ---
 
@@ -15,4 +15,4 @@ I'm **Mifhal Afandi**, a passionate learner, creator, and coder! Welcome to my l
 - 📫 How to reach me: Contact me at zdfwolx@gmail.com for personal use
 -
 -
--          🎆Thank You For Vitising My Page🎆
+-          🎆 **Thank You For Vitising My Page** 🎆
